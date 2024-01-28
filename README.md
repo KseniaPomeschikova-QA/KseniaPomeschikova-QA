@@ -27,7 +27,7 @@ Here are some ideas to get you started:
 
 ### Contacts :email:
   - Email: Pomechshikova1995@yandex.ru
-  - Telegram: <a href="https://t.me/militantis">@militantis</a>
+  - Telegram: <a href="https://t.me/ks_militantis">@ks_militantis</a>
 
 ### Skills :muscle:
 <p>
